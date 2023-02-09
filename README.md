@@ -1,1 +1,0 @@
-# pratica de exercicios
